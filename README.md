@@ -1,4 +1,5 @@
-Hi👋👋am Matayo Patrick....
+Hi👋👋am Matayo Patrick....Age 28years .likes Matoke/sweet bananas,Son to mummy.
+likes swimming,hiking,nature walks,farming, travel as my best hobies.
 ## 🌐 Socials:
 [![Bluesky](https://img.shields.io/badge/bluesky-0285FF?style=for-the-badge&logo=bluesky&logoColor=%23FFFFFF)](https://bsky.app/profile/pmatayo2018@gmail.com) [![Behance](https://img.shields.io/badge/Behance-1769ff?logo=behance&logoColor=white)](https://behance.net/Egwona) [![Facebook](https://img.shields.io/badge/Facebook-%231877F2.svg?logo=Facebook&logoColor=white)](https://facebook.com/pattooo) [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/Pammy ) [![Mastodon](https://img.shields.io/badge/-MASTODON-%232B90D9?logo=mastodon&logoColor=white)](https://mastodon.social/@waaaaamy) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:Pmatayo@gmail.com) 
 
